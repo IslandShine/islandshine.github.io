@@ -39,7 +39,7 @@ Interested in a free estimate or have a question about your home’s exterior?
 
 - **Brad Perez, Owner**  
 - 📱 (631) 559-6280  
-- 📧 IslandShineExterior@gmail.com  
+- 📧 IslandShineExterior1@gmail.com  
 - 🌐 [Visit our website](https://islandshine.github.io)
 
 Let’s bring new life to your home — one shine at a time.
